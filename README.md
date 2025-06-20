@@ -1,2 +1,1 @@
-# isra1
-tugas uas database
+# NURHIDAYANTI D0222355 KELAS D
